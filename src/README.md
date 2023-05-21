@@ -1,1 +1,0 @@
-# entrega-coderhouse-clase6
